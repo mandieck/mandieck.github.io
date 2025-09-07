@@ -1,1 +1,0 @@
-# mandieck.github.io
